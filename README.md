@@ -35,224 +35,60 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A knowledge for kings, and a warning for subiects conteyning the moste excellent and worthy history 
+
+1. ¶ To the Right worſhipfull, M. Gryffyn Hamden, of Hamden Eſſquyer: one of the Queenes Maieſties Iuſtices, of the Countie of Buckingham. VV. C. wyſheth health, and happines, in Chriſt Ieſus. (⸫)
+
+1. ¶ Iames Glawcus his Epiſtle to the Reader, tranſlated out of Latin by VVilliam Cleuer.
+
+1. ¶ A compendious Fable ſhewing the ſubſtaunce of the whole worke.
+
 #####Body#####
+❧Howe the Raellyans began their fyrſt eſtate, and of their great Idolatrie to the Aſſe of Adamant in
+    _ ❧Howe the Raellyans began their fyrſt eſtate, and of their great Idolatrie to the Aſſe of Adamant in the holieAlſephon A ſancna or holie place of their religion.Alſephon, &c.
 
-1. ❧Howe the Raellyans began their fyrſt eſtate, and of their great Idolatrie to the Aſſe of Adamant in the holieAlſephon A ſancna or holie place of their religion.Alſephon, &c.
+    _ ❧The oration of Harmannus the Orator, in the behalfe of the common people, for that they would not haue a gouernor.
 
-    _ The Aſcalons Declaration vnto the Elders concerning the anſwer of the Image.
+    _ ❧Howe Alectros, the Orator for the Elders, confuteth Harmannus his Oration, and what perſwaſions hée vſeth for the eſtabliſhing of a King.
 
-    _ The coronation of Hellepatrus King of the Raellians in the holy Alſephon.
+    _ ❧Of the great diſcention and h•rlie burlie, that fell among the people in the holie Alſephon.
 
-    _ The Kinges Oration.
+    _ ¶ The Determyners Oration, for the appeaſing of the people.
 
-    _ The death of Hellepatrus the King.
+    _ ¶ How the Aſcalon of the Alſephon did require an aunſwere from the Image, whether they shoulde haue a King, or no.
 
-    _ ¶ The Aſcalon ſpake vnto the Prophete after this ſort.
+    _ ¶ HOW THE KINGE was choſen by the conſent of the whole Realme, as wel the Elders as the commons.
 
-1. ❧The oration of Harmannus the Orator, in the behalfe of the common people, for that they would not haue a gouernor.
+      * The Aſcalons Declaration vnto the Elders concerning the anſwer of the Image.
 
-    _ The Aſcalons Declaration vnto the Elders concerning the anſwer of the Image.
+      * The coronation of Hellepatrus King of the Raellians in the holy Alſephon.
 
-    _ The coronation of Hellepatrus King of the Raellians in the holy Alſephon.
+      * The Kinges Oration.
 
-    _ The Kinges Oration.
+    _ ❧Here ſheweth howe the King was ſworne vnto the Commens, and paſſed forth the daie of his Coronation, with many pleaſures.
 
-    _ The death of Hellepatrus the King.
+    _ ❧ Here is ſhewed howe the King fell at diſcorde with his ſubiects: his ſubiects confederated with the King of the Hircans, to inuade their lande: Hellepatrus the king of the Raellyans, was banished, and reſtored vnto his kingdome by the King of the Trebonians: with the myſerable death that the King of the Trebonyans was executed to.
 
-    _ ¶ The Aſcalon ſpake vnto the Prophete after this ſort.
+    _ ❧The King of the Trebonians aunſwered his pittyfull complaynt in this maner.
 
-1. ❧Howe Alectros, the Orator for the Elders, confuteth Harmannus his Oration, and what perſwaſions hée vſeth for the eſtabliſhing of a King.
+      * The death of Hellepatrus the King.
 
-    _ The Aſcalons Declaration vnto the Elders concerning the anſwer of the Image.
+    _ ❧Here is declared the ſorrowe that the Raellyans made for the death of Hellepatrus: the straunge ſight that was ſeene in the Alſephon: and what ioye they made in the ende of their ſorrow, for the crowning of Hellydorus to bee King.
 
-    _ The coronation of Hellepatrus King of the Raellians in the holy Alſephon.
+    _ ❧ The Oration of Hellydorus the King.
 
-    _ The Kinges Oration.
+    _ ❧Here is ſhewed howe the King paſſed forth his Coronation with feaſting, and actiue tryumphe, fell ſicke, and recouering his health, reuenged the death of his father, Hellepatrus.
 
-    _ The death of Hellepatrus the King.
+    _ ¶ How the King put many to death, for concealing the vvrytinges that were betweene their forefathers, and the Aſſyrians, when the Lande was firste purchaſed: And alſo of a Prophete that ryſeth among the Raellyans, and cryeth out of their Idolatrous Image, the Aſſe, in which was all their trust: The ſaide Prophete is put to death, by Hellydorus the King.
 
-    _ ¶ The Aſcalon ſpake vnto the Prophete after this ſort.
+      * ¶ The Aſcalon ſpake vnto the Prophete after this ſort.
 
-1. ❧Of the great diſcention and h•rlie burlie, that fell among the people in the holie Alſephon.
+    _ Here is ſhewed how the King fell in loue with one Sebona a harlotte, married her: and was turned to an Aſſe: and how the Aſsirians did repoſſed the Land of the Raellians by conqueſt.
 
-    _ The Aſcalons Declaration vnto the Elders concerning the anſwer of the Image.
+    _ ¶ Howe Hellidorus was hearde to ſpeake after he was an Aſſe, and there was deuowred of houndes: the Aſſyrians for the loue that they did beare vnto him, did burie his carkaſe in the fourme of an Aſſe: and builded in the middest of the wylderneſſe, a verie honorable Tombe ouer the ſame.
 
-    _ The coronation of Hellepatrus King of the Raellians in the holy Alſephon.
+    _ ¶ The wordes of King Hellidorus, when he was an Aſſe.
 
-    _ The Kinges Oration.
-
-    _ The death of Hellepatrus the King.
-
-    _ ¶ The Aſcalon ſpake vnto the Prophete after this ſort.
-
-1. ¶ The Determyners Oration, for the appeaſing of the people.
-
-    _ The Aſcalons Declaration vnto the Elders concerning the anſwer of the Image.
-
-    _ The coronation of Hellepatrus King of the Raellians in the holy Alſephon.
-
-    _ The Kinges Oration.
-
-    _ The death of Hellepatrus the King.
-
-    _ ¶ The Aſcalon ſpake vnto the Prophete after this ſort.
-
-1. ¶ How the Aſcalon of the Alſephon did require an aunſwere from the Image, whether they shoulde haue a King, or no.
-
-    _ The Aſcalons Declaration vnto the Elders concerning the anſwer of the Image.
-
-    _ The coronation of Hellepatrus King of the Raellians in the holy Alſephon.
-
-    _ The Kinges Oration.
-
-    _ The death of Hellepatrus the King.
-
-    _ ¶ The Aſcalon ſpake vnto the Prophete after this ſort.
-
-1. ¶ HOW THE KINGE was choſen by the conſent of the whole Realme, as wel the Elders as the commons.
-
-    _ The Aſcalons Declaration vnto the Elders concerning the anſwer of the Image.
-
-    _ The coronation of Hellepatrus King of the Raellians in the holy Alſephon.
-
-    _ The Kinges Oration.
-
-    _ The death of Hellepatrus the King.
-
-    _ ¶ The Aſcalon ſpake vnto the Prophete after this ſort.
-
-1. ❧Here ſheweth howe the King was ſworne vnto the Commens, and paſſed forth the daie of his Coronation, with many pleaſures.
-
-    _ The Aſcalons Declaration vnto the Elders concerning the anſwer of the Image.
-
-    _ The coronation of Hellepatrus King of the Raellians in the holy Alſephon.
-
-    _ The Kinges Oration.
-
-    _ The death of Hellepatrus the King.
-
-    _ ¶ The Aſcalon ſpake vnto the Prophete after this ſort.
-
-1. ❧ Here is ſhewed howe the King fell at diſcorde with his ſubiects: his ſubiects confederated with the King of the Hircans, to inuade their lande: Hellepatrus the king of the Raellyans, was banished, and reſtored vnto his kingdome by the King of the Trebonians: with the myſerable death that the King of the Trebonyans was executed to.
-
-    _ The Aſcalons Declaration vnto the Elders concerning the anſwer of the Image.
-
-    _ The coronation of Hellepatrus King of the Raellians in the holy Alſephon.
-
-    _ The Kinges Oration.
-
-    _ The death of Hellepatrus the King.
-
-    _ ¶ The Aſcalon ſpake vnto the Prophete after this ſort.
-
-1. ❧The King of the Trebonians aunſwered his pittyfull complaynt in this maner.
-
-    _ The Aſcalons Declaration vnto the Elders concerning the anſwer of the Image.
-
-    _ The coronation of Hellepatrus King of the Raellians in the holy Alſephon.
-
-    _ The Kinges Oration.
-
-    _ The death of Hellepatrus the King.
-
-    _ ¶ The Aſcalon ſpake vnto the Prophete after this ſort.
-
-1. ❧Here is declared the ſorrowe that the Raellyans made for the death of Hellepatrus: the straunge ſight that was ſeene in the Alſephon: and what ioye they made in the ende of their ſorrow, for the crowning of Hellydorus to bee King.
-
-    _ The Aſcalons Declaration vnto the Elders concerning the anſwer of the Image.
-
-    _ The coronation of Hellepatrus King of the Raellians in the holy Alſephon.
-
-    _ The Kinges Oration.
-
-    _ The death of Hellepatrus the King.
-
-    _ ¶ The Aſcalon ſpake vnto the Prophete after this ſort.
-
-1. ❧ The Oration of Hellydorus the King.
-
-    _ The Aſcalons Declaration vnto the Elders concerning the anſwer of the Image.
-
-    _ The coronation of Hellepatrus King of the Raellians in the holy Alſephon.
-
-    _ The Kinges Oration.
-
-    _ The death of Hellepatrus the King.
-
-    _ ¶ The Aſcalon ſpake vnto the Prophete after this ſort.
-
-1. ❧Here is ſhewed howe the King paſſed forth his Coronation with feaſting, and actiue tryumphe, fell ſicke, and recouering his health, reuenged the death of his father, Hellepatrus.
-
-    _ The Aſcalons Declaration vnto the Elders concerning the anſwer of the Image.
-
-    _ The coronation of Hellepatrus King of the Raellians in the holy Alſephon.
-
-    _ The Kinges Oration.
-
-    _ The death of Hellepatrus the King.
-
-    _ ¶ The Aſcalon ſpake vnto the Prophete after this ſort.
-
-1. ¶ How the King put many to death, for concealing the vvrytinges that were betweene their forefathers, and the Aſſyrians, when the Lande was firste purchaſed: And alſo of a Prophete that ryſeth among the Raellyans, and cryeth out of their Idolatrous Image, the Aſſe, in which was all their trust: The ſaide Prophete is put to death, by Hellydorus the King.
-
-    _ The Aſcalons Declaration vnto the Elders concerning the anſwer of the Image.
-
-    _ The coronation of Hellepatrus King of the Raellians in the holy Alſephon.
-
-    _ The Kinges Oration.
-
-    _ The death of Hellepatrus the King.
-
-    _ ¶ The Aſcalon ſpake vnto the Prophete after this ſort.
-
-1. Here is ſhewed how the King fell in loue with one Sebona a harlotte, married her: and was turned to an Aſſe: and how the Aſsirians did repoſſed the Land of the Raellians by conqueſt.
-
-    _ The Aſcalons Declaration vnto the Elders concerning the anſwer of the Image.
-
-    _ The coronation of Hellepatrus King of the Raellians in the holy Alſephon.
-
-    _ The Kinges Oration.
-
-    _ The death of Hellepatrus the King.
-
-    _ ¶ The Aſcalon ſpake vnto the Prophete after this ſort.
-
-1. ¶ Howe Hellidorus was hearde to ſpeake after he was an Aſſe, and there was deuowred of houndes: the Aſſyrians for the loue that they did beare vnto him, did burie his carkaſe in the fourme of an Aſſe: and builded in the middest of the wylderneſſe, a verie honorable Tombe ouer the ſame.
-
-    _ The Aſcalons Declaration vnto the Elders concerning the anſwer of the Image.
-
-    _ The coronation of Hellepatrus King of the Raellians in the holy Alſephon.
-
-    _ The Kinges Oration.
-
-    _ The death of Hellepatrus the King.
-
-    _ ¶ The Aſcalon ſpake vnto the Prophete after this ſort.
-
-1. ¶ The wordes of King Hellidorus, when he was an Aſſe.
-
-    _ The Aſcalons Declaration vnto the Elders concerning the anſwer of the Image.
-
-    _ The coronation of Hellepatrus King of the Raellians in the holy Alſephon.
-
-    _ The Kinges Oration.
-
-    _ The death of Hellepatrus the King.
-
-    _ ¶ The Aſcalon ſpake vnto the Prophete after this ſort.
-
-1. The verſes wrytten ouer King Hellydorus his Tombe.
-
-    _ The Aſcalons Declaration vnto the Elders concerning the anſwer of the Image.
-
-    _ The coronation of Hellepatrus King of the Raellians in the holy Alſephon.
-
-    _ The Kinges Oration.
-
-    _ The death of Hellepatrus the King.
-
-    _ ¶ The Aſcalon ſpake vnto the Prophete after this ſort.
+    _ The verſes wrytten ouer King Hellydorus his Tombe.
 
 **Types of content**
 
